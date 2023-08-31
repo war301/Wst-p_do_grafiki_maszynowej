@@ -1,0 +1,1 @@
+# Wst-p_do_grafiki_maszynowej
